@@ -1,3 +1,3 @@
 # Deneme
-...
-Not Defteri üzerinden ilk değişiklik!2323
+
+Not Defteri üzerinden ilk değişiklik!0101
